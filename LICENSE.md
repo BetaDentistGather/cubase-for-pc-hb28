@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Cubase for PC | Cubase for Windows extension with automatic Cubase for PC | Cubase for Windows Extension | pitch-shifting + MIDI-editing. Featuring pitch-shifting
 
 
 
